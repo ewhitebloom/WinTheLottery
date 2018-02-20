@@ -1,0 +1,1 @@
+Win the lottery is a little program that will show you how you'll probably never win the Powerball lottery :<
